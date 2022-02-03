@@ -4,11 +4,9 @@ Soon to be Computer Scientist graduated from Tec de Monterrey, aspiring Data Sci
 
 ### About me
 - 🇲🇽 Mexican
-- ♂️ Pronouns: He/Him
 - 🔭 Favourite Movie of All Time: [Interstellar](https://en.wikipedia.org/wiki/Interstellar_(film))
 - 😱 Favourite Horror Movie: [Midsommar](https://en.wikipedia.org/wiki/Midsommar)
 - 🏹 Favourite Videogame Franchise: [Tomb Raider](https://en.wikipedia.org/wiki/Tomb_Raider)
-- 🎶 Favourite Song: [La Bikina](https://www.youtube.com/watch?v=NCvJwzDQTBM)
 - 🌎 Languages: 🇲🇽Native/ 🇬🇧TOEFL iBT 111/ 🇯🇵JLPT N5/ 🇷🇺Beginner
 
 ### How to reach me
