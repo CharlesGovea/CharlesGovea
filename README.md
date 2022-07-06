@@ -12,7 +12,9 @@ Soon to be Computer Scientist graduated from Tec de Monterrey, aspiring Data Sci
 - 🌎 Languages: 🇲🇽Native/ 🇬🇧TOEFL iBT 111/ 🇯🇵JLPT N5/ 🇩🇪Beginner
 
 ### How to reach me
-[Linkedin](https://www.linkedin.com/in/carlos-govea-gzz/) [Mail](charles-1110@hotmail.com)
+- [Linkedin](https://www.linkedin.com/in/carlos-govea-gzz/) 
+- [Mail](charles-1110@hotmail.com)
+- [Instagram](https://www.instagram.com/nosferatu.noire/)
 
 <!--
 **CharlesGovea/CharlesGovea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
