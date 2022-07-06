@@ -7,7 +7,9 @@ Soon to be Computer Scientist graduated from Tec de Monterrey, aspiring Data Sci
 - 🔭 Favourite Movie of All Time: [Interstellar](https://en.wikipedia.org/wiki/Interstellar_(film))
 - 😱 Favourite Horror Movie: [Midsommar](https://en.wikipedia.org/wiki/Midsommar)
 - 🏹 Favourite Videogame Franchise: [Tomb Raider](https://en.wikipedia.org/wiki/Tomb_Raider)
-- 🌎 Languages: 🇲🇽Native/ 🇬🇧TOEFL iBT 111/ 🇯🇵JLPT N5/ 🇷🇺Beginner
+- 🎮 Favourite Multiplayer Game: [Overwatch](https://en.wikipedia.org/wiki/Overwatch)
+- 🐈‍⬛ Huge Batman fan
+- 🌎 Languages: 🇲🇽Native/ 🇬🇧TOEFL iBT 111/ 🇯🇵JLPT N5/ 🇩🇪Beginner
 
 ### How to reach me
 [Linkedin](https://www.linkedin.com/in/carlos-govea-gzz/) [Mail](charles-1110@hotmail.com)
